@@ -1,6 +1,6 @@
 #Documentación
 
-> Laura Serrano Ruiz
+> LAURA SERRANO RUIZ
 > 09/05/2021
 > IES Luis Vélez de Guevara
 
